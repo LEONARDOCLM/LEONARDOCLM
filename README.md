@@ -8,5 +8,4 @@ Meu nome é Leonartdo Clemente
 - utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - sou novo aqui nessa plataforma
 - estou desenvolvemdo um projeto
-- 
 ![_](https://media1.tenor.com/m/zk6OuE-RGngAAAAC/midoriya-izuku-anime-stud.gif)
